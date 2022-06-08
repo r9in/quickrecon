@@ -1,1 +1,3 @@
 SOON!
+
+* EASY TO SETUP AND USE
